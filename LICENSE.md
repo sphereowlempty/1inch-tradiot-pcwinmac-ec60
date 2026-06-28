@@ -1,4 +1,4 @@
-# 
+# Profesional 1inch trading bot preajustes for Mac OS | Último 1inch trading bot preajustes for PC Windows. Featuring estrategia de reversión a la media and API de intercambio centralizado — optimized for maximum performance.
 
 
 
